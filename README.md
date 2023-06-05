@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **krishnapratap.cse@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/15Do92ZH7Gc9CUH1oRSPFgtjBQCDaYjx5/view?usp=drive_link]([https://drive.google.com/file/d/15Do92ZH7Gc9CUH1oRSPFgtjBQCDaYjx5/view?usp=drive_link](https://www.linkedin.com/in/krishcse/overlay/1635528601184/single-media-viewer?type=DOCUMENT&profileId=ACoAADVLEL4BTXesOOOjZV8pWpqIgWwR-aqELhU&lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base%3B%2FXG2%2B41yTy2AMuNLRWcyEQ%3D%3D))
+- 📄 Know about my experiences [https://drive.google.com/file/d/15Do92ZH7Gc9CUH1oRSPFgtjBQCDaYjx5/view?usp=drive_link](https://drive.google.com/file/d/15Do92ZH7Gc9CUH1oRSPFgtjBQCDaYjx5/view?usp=drive_link](https://www.linkedin.com/in/krishcse/overlay/1635528601184/single-media-viewer?type=DOCUMENT&profileId=ACoAADVLEL4BTXesOOOjZV8pWpqIgWwR-aqELhU&lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base%3B%2FXG2%2B41yTy2AMuNLRWcyEQ%3D%3D)
 
 - ⚡ Fun fact **I think, I am Fast Learner, Hard Wornking & bit Funny.**
 
