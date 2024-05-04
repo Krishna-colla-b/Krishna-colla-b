@@ -1,5 +1,5 @@
 <h1 align="center">Hi 👋, I'm Krishna Pratap Singh Chauhan</h1>
-<h3 align="center">A software engineer, seeking a opportunity where I can utilize my logical and technical skills. I am passionate about Artificial Intelligence and I enjoy being challenged where I have to solve problems and I like working on projects that require me to work outside my comfort and knowledge set.</h3>
+<h3 align="center">A AI/ML engineer, seeking a opportunity where I can utilize my logical and technical skills. I am passionate about Artificial Intelligence and I enjoy being challenged where I have to solve problems and I like working on projects that require me to work outside my comfort and knowledge set.</h3>
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=krishna-colla-b&label=Profile%20views&color=0e75b6&style=flat" alt="krishna-colla-b" /> </p>
 
